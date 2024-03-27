@@ -5,6 +5,12 @@
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 # STUFFS U NEED TO KNOW ABT ME IN PONY TOWN!
+
+First things first . . .
+
+**DO NOT** copy my pony town outfits ! 
+welll... inspo is allowed but not heavy inspo 3:
+
 **🌙 ➜ offtab ! (pls whisper 2 int me when this is my status)**
 
 **⛔ ➜ doing smth else~**
