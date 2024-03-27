@@ -1,3 +1,19 @@
 ## "ᴡᴇʟʟ ʏᴇᴀʜ, ɪ ᴅᴜɴɴᴏ ᴀɴʏᴛʜɪɴɢ, ʙᴜᴛ… ɪᴛ’ꜱ ᴡʜᴀᴛ ᴍʏ ʜᴇᴀʀᴛ ꜱᴀʏꜱ, ꜱᴏ ᴡʜᴀᴛ ᴇʟꜱᴇ ᴄᴀɴ ɪ ᴅᴏ! ɪ’ᴍ ɴᴏᴛ ꜱᴍᴀʀᴛ ᴀɴʏʜᴏᴡ. ꜱᴏ ɪ’ᴍ ɢᴏɴɴᴀ ʙᴇʟɪᴇᴠᴇ ɪɴ ᴛʜɪꜱ ꜰᴇᴇʟɪɴɢ." ‹𝟹
 ![image](https://github.com/kouscat/kouscat/assets/164333612/2fc9fb83-2755-417b-8e32-396ebeb60668)
 ( ˃ ⩌˂) i really like joe tazuna from yttd
+##
+
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
+# STUFFS U NEED TO KNOW ABT ME IN PONY TOWN!
+**🌙 ➜ offtab ! (pls whisper 2 int me when this is my status)**
+
+**⛔ ➜ doing smth else~**
+
+I'm mosty seen with my joe cosplay ! (feel free to c+h u don't need to ask !)
+
+![pony-town-' love ya, sara! ' offtab -stand-blinking-padded-4x](https://github.com/kouscat/kouscat/assets/164333612/4f9d9b9d-c77a-4f82-978d-3abb078a0191)
+
+
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦　 . ✦
+
+. . .**__PLEASE__** INTERACT WITH ME I DONT BITE I SWEAR !!
