@@ -15,9 +15,7 @@ welll... inspo is allowed but not heavy inspo 3:
 
 **⛔ ➜ doing smth else~**
 
-I'm mosty seen with my joe cosplay ! (feel free to c+h u don't need to ask !)
-
-![pony-town-' love ya, sara! ' offtab -stand-blinking-padded-4x](https://github.com/kouscat/kouscat/assets/164333612/4f9d9b9d-c77a-4f82-978d-3abb078a0191)
+feel free to c+h u don't need to ask !
 
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦　 . ✦
