@@ -21,3 +21,5 @@ feel free to c+h u don't need to ask !
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦　 . ✦
 
 . . .**__PLEASE__** INTERACT WITH ME I DONT BITE I SWEAR !! (i love making frens :3) 
+
+![](https://komarev.com/ghpvc/?username=kouscat=9c5133)
