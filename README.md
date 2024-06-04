@@ -16,7 +16,7 @@ welll... inspo is allowed but not heavy inspo 3:
 **⛔ ➜ doing smth else~**
 
 feel free to c+h u don't need to ask !
-
+![](https://komarev.com/ghpvc/?username=kouscat)
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦　 . ✦
 
