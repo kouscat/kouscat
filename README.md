@@ -2,7 +2,7 @@
 ![image](https://github.com/kouscat/kouscat/assets/164333612/2fc9fb83-2755-417b-8e32-396ebeb60668)
 ( ˃ ⩌˂) i really like joe tazuna from yttd
 ##
-
+![](https://komarev.com/ghpvc/?username=kouscat)
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 # STUFFS U NEED TO KNOW ABT ME IN PONY TOWN!
 
@@ -16,7 +16,7 @@ welll... inspo is allowed but not heavy inspo 3:
 **⛔ ➜ doing smth else~**
 
 feel free to c+h u don't need to ask !
-![](https://komarev.com/ghpvc/?username=kouscat)
+
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦　 . ✦
 
